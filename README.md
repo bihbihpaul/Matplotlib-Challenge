@@ -1,5 +1,5 @@
                                                                                                    
-                                                                  Observations and insights
+                                                           Observations and insights
 
   The study of the four perspectives drug regimens revealed Capomulin and Ramicane to be the best options in the treatment of the squamous cell carcinoma cancer.
 According to the bar plot, Capomulin and Ramicane appear to be the most administered regimens with around 230 candidates whereas Propriva represents the least administered, with a little over 150 candidates. The gender distribution of these candidates shows a slight domination of the male demographic, with 50.4% over the female demographic, with 49.6%. 
